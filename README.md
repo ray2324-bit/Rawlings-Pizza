@@ -1,0 +1,2 @@
+# Rawlings-Pizza
+Pizza as we know it today was invented in 1889, when the Neapolitan Chef Raffaele Esposito created the Margherita pizza, named after Queen Margherita of Savoy: tomato, mozzarella and basil to honor the Queen and Italy. Our Rawlings pizza is made with love. It embraces the palate, surprises and creatively interprets the most famous Italian dish in the world. The high quality ingredients used are carefully selected and certified. The cooking process, entirely done by hand, results in a combination of tastiness, lightness and digestibility.
